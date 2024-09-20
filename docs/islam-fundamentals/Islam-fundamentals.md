@@ -1,6 +1,6 @@
-## Fundamentals
+# Fundamentals of islam
 
-### Basic principles of islam
+## Basic principles of islam
 
 Religion has a clear purpose for humanity: to achieve nearness to God and serving your fellow human being.
 - Islam literally means “obedience and peace”. Your duty is complete submission to God and to be at peace with all creatures of God.
@@ -11,7 +11,7 @@ Religion has a clear purpose for humanity: to achieve nearness to God and servin
 - God always sends warnings and knowledge to give you a chance to avoid his punishment
 - Faith is not meaningful if followed blindly. You have to reason why you want to believe in God and follow his teachings.
 
-### Fate
+## Fate
 
 Allah lets humans have free will over their actions. He does not interfere unless he desires to. Man has control over his own destiny, but not so much for his fate.
 
@@ -20,7 +20,7 @@ _Divine decree_, also known as fate, comes in two types:
 - **suspended:** You may avoid this bad fate by praying and alms-giving
 - **absolute:** You cannot avoid this bad fate, but Allah will give you rewards in return
 
-### Salah
+## Salah
 
 A perfect salat is when the worshipper’s focus reaches such a climax that they feel as if they were seeing Allah
 

@@ -1,4 +1,4 @@
-# Intro
+# Sunnah
 
 - https://d1.islamhouse.com/data/en/ih_books/single/en-almenah-al3aleah.pdf
 - https://media.rasoulallah.net/booklet/1000%20sunnah-print-eng.pdf
@@ -18,23 +18,32 @@ The sunnah is optional, but recommended. You will not be punished for not follow
 
 ## Best quotes
 
-> “The example of the one who remembers his Lord (God) in comparison with the one who does not remember his Lord is that of the living and the dead.”
+> *“The example of the one who remembers his Lord (God) in comparison with the one who does not remember his Lord is that of the living and the dead.”*
 
+>*"Being connected with Allah is life, seeking refuge with Him is salvation, being near Him is success and satisfaction and keeping away from Him is loss and deviation." - Aisha*
+
+>*"One should always remember Allah, as the people of paradise do not regret anything, except an hour that passed by them in this life without remembering Allah"*
 ## Duas
 
 ### How to make duas
 
 Always start duas by praising Allah and then sending peace and blessings to the prophet. When asking Allah for something specific, refer to him by one of his 99 names the closest to what you are asking for, like the Ever-forgiving.
 
+### Random duas
 
+- Say *subhanallah wa bihamdi* 100 times a day
+- When seeing an ill person, say this dua as to not be afflicted with illness:
+>*"all praise is to Allah Who has protected me against what He has afflicted you with and Who has graced me over many of whom He has created with marked graciousness"*
 
-## Sunnah
+## Sunnah for daily life
 
 
 ### Waking up
 
 1. Say this dua after waking up
-	![](https://www.webpagescreenshot.info/image-url/onECrLodK)
+
+![](https://www.webpagescreenshot.info/image-url/onECrLodK)
+
 2. Wash your face and hands
 
 ### Going to sleep
@@ -48,10 +57,10 @@ Always start duas by praising Allah and then sending peace and blessings to the 
 6. Lie down on your right side, put hand under the cheek, and say this dua:
 	![](https://www.webpagescreenshot.info/image-url/_k6QNCcY0)
 
-### Entering the bathroom
+### uSING THE BATHROOM
 
-Here are the general rules when using the bathroom: 
-- Do not remember Allah. You should never take any books with Allah's name written inside into the bathroom.
+When using the bathroom, do not remember Allah. You should never take any books with Allah's name written inside into the bathroom.
+
 But here is the sunnah: 
 1. Enter the bathroom with the left foot
 2. Say this dua
@@ -71,14 +80,26 @@ The perfect wudu is where you clean every part of your body and you exaggerate t
 After completing the wudu, say this dua: 
 ![](https://www.webpagescreenshot.info/image-url/PD6D1cs2H)
 
+After a perfect wudu, if you pray two sunnah rakahs before a prayer, then the prophet says this:
 
+>"He who performs ablution like this of mine and then stood up (for prayer) and offered two rak’ahs of prayer without allowing his thoughts to be distracted, all his previous sins are expiated." 
+
+>“He who performed ablution perfectly, his sins would come out from his body, even coming out from under his nails.”
+
+::tip
+The importance of doing a perfect wudu can't be understated. Always exaggerate the washing. 
+:::
 ### Miscellaneous
+
+#### Finish the quran in a month
+
+To easily finish the quran in a month, read 2 pages of the quran before each prayer and another 2 pages after each prayer. 
 
 #### Clothes and shoes
 
 When wearing both clothes and shoes, always start putting them on by saying "Bismallah" and then always put on the right side clothing/shoes before the left side. 
 
-When taking off clothes, take off the left side first and then the right.
+When taking off clothes or shoes, take off the left side first and then the right.
 
 #### Mosque
 
@@ -95,6 +116,22 @@ Always enter the mosque with the right foot and leave the mosque with the left f
 2. After eating, say Allhuakbar and say this dua:
 	![](https://www.webpagescreenshot.info/image-url/zSuJquhnP)
 
-## Performing prayers
+## Sunnah for performing prayers
 
+### After a prayer
+
+1. Say "astaghfirallah"
+2. Recite ayat-al-kursi
 ### Twelve sunnah prayers
+
+The twelve sunnah prayers a day are spread before and after the fard salahs, and this is what the prophet had to say about it: 
+
+>"in no way does a Muslim slave pray to Allah twelve rak’as per day, except that Allah builds a house for him in paradise, or that a house is built for him in paradise"
+
+Here are the sunnah prayers you should perform: 
+
+- 2 rakah before fajr
+- 4 rakah before thuhr
+- 2 rakah after thuhr
+- 2 rakah after maghrib
+- 2 rakah after isha
