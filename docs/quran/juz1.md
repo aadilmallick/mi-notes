@@ -15,5 +15,13 @@
 >	Believe in My revelations which confirm your Scriptures. Do not be the first to deny them or trade them for a fleeting gain. And be mindful of Me. Do not mix truth with falsehood or hide the truth knowingly. (41, 42)
 - Verses 50-70: Story about Moses
 	>Indeed, the believers, Jews, Christians, and Sabians1—whoever ˹truly˺ believes in Allah and the Last Day and does good will have their reward with their Lord. And there will be no fear for them, nor will they grieve. (62)
-- Verses 70-90: Don't attribute lies to Allah
+- Verses 70-90: Don't attribute lies to Allah. Allah also dispels the myth that heaven and hell are temporary. He assures they last forever. Allah points out the hypocrisy in people that pick and choose parts of scripture to follow, rejecting the rest. He also points out how stupid it is to value your temporary life over eternity. This life is a test, and a lot of people don't pass this part. 
 	>Do they not know that Allah is aware of what they conceal and what they reveal? (77)
+	>
+> 	So woe to those who distort the Scripture with their own hands then say, “This is from Allah”—seeking a fleeting gain! So woe to them for what their hands have written, and woe to them for what they have earned. 79
+> 	
+> 	Worship none but Allah; be kind to parents, relatives, orphans and the needy; speak kindly to people; establish prayer; and pay alms-tax. 85
+> 	
+> 	These are the ones who trade the Hereafter for the life of this world. So their punishment will not be reduced, nor will they be helped. 86
+- Verses 90 - 120: Allah establishes that islam will have a broader acceptance for the types of people that can go to heaven. 
+>		Establish prayer, and pay alms-tax. Whatever good you send forth for yourselves, you will ˹certainly˺ find ˹its reward˺ with Allah. Surely Allah is All-Seeing of what you do. 110

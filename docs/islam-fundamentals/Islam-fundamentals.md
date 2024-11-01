@@ -43,3 +43,29 @@ So, in summary:
 - Forgive others
 - Tell the truth
 - Obey your parents 
+
+
+## Random Tips
+
+1. Those who are tested to stay away from a sin they enjoy will have many rewards if they overcome their desire. 
+> Umar [ibn al-Khattab (RA)] was asked about those who strongly desire to commit a sin but refrain from it. He (RA) said: “Those are the ones whose hearts Allah has tested for al-taqwaa (consciousness of Allah), for them is forgiveness and a tremendous reward.” (Qur'an 49:13)
+> If you incline heavily towards something that is bad for you, then insha'Allah your reward will be proportionally big. Stay strong.
+
+As your bigger brother, the teenage and years of the youth are HEAVILY overrated. Spend them wisely or you will regret:
+1. 
+## Questions to answer
+
+1.  Why do I believe in God? What solid reasoning can I provide if someone asks me, “Why should I believe in God?”
+2. What benefits does belief in God bring? How can one asnwer questions like, “What do I gain from it? Is it just the idea of heaven?” and “Do people really care about that?”
+3. Why pray or read the Quran? What do these practices actually accomplish? What effect do they have in a world that seems so pointless ?
+4. Is Islam faulty or outdated? Is the religion still relevant today, or are there aspects that feel disconnected from the reality of modern life?
+5. What does God know that we don’t? If God is all-knowing, what is it that we are missing? Is Islam really the absolute truth?
+6. Will good people really go to hell if they don’t read the Quran? Is this fair? How does justice work if someone is genuinely good but not religiously observant?
+7.	How does one protect themselves from evil? In such a corrupt world, what real guidance does Islam offer to protect individuals from evil?
+8. Why is love? What is the role of love in belief, and how does it connect with practicing Islam?
+9. Why do I find praying difficult? If prayer is a pillar of Islam, why do I personally struggle with it? Does this make me a hypocrite, or is it part of the journey?
+10. What steps can I take to learn about Islam authentically? I feel my faith is faulty, even though I believe in God and His messenger. I seek guidance on how to study and learn about Islam in a way that aligns with true Islamic teachings.
+11. What is the meaning of life?
+	![reddit islam](https://www.webpagescreenshot.info/image-url/rdiaf5mVD)
+	- Although the purpose of life is just to worship God, the meaning of life is something you choose. You can accomplish the vehicle of getting closer to God by striving for a goal and accomplishing good through that. Whether it's writing a meaningful story, helping impoverished people, or creating beautiful music, excelling in something can help you avoid the wordly pitfalls in this modern life and instead focus on transcendent activities that will give you meaning in your current life and good deeds in the afterlife. 
+> "as a muslim you should have a goal in life and try hard to acheive it but at the same time pray and remember Allah."

@@ -120,8 +120,9 @@ Always enter the mosque with the right foot and leave the mosque with the left f
 
 ### After a prayer
 
-1. Say "astaghfirallah"
-2. Recite ayat-al-kursi
+1. Say "astaghfirallah" 3 times
+2. Recite ayat-al-kursi. 
+	- The prophet originally said that whoever prays ayat-al-kursi after each prayer, there will be nothing standing in between him and paradise except death. 
 ### Twelve sunnah prayers
 
 The twelve sunnah prayers a day are spread before and after the fard salahs, and this is what the prophet had to say about it: 
