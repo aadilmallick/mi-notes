@@ -118,7 +118,7 @@ const config: Config = {
           items: [
             {
               label: "Tutorial",
-              to: "/docs/quran/juz1",
+              to: "/docs/quran/juz1-2",
             },
           ],
         },
