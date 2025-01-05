@@ -1,4 +1,4 @@
-# Juz 1
+# Juz 1-3
 
 ## Surah baqarah
 
