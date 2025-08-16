@@ -30,6 +30,16 @@ Allah also points out their hesitance in accepting new scripture:
 
 > "Why is it that every time they make a covenant, a group of them casts it aside? In fact, most of them do not believe. Now, when a messenger from Allah has come to them—confirming their own Scriptures—some of the People of the Book cast the Book of Allah behind their backs as if they did not know." (100 - 101)
 
+**verses 40-50**
+
+>Do you preach righteousness and fail to practice it yourselves, although you read the Scripture? Do you not understand? (44)
+
+In this verse, Allah points how religious people can fall into hypocrisy.
+
+>And seek help through patience and prayer. Indeed, it is a burden except for the humble— those who are certain that they will meet their Lord and to Him they will return. (45-46)
+
+In this verse, Allah shows our misguided thinking about how prayer is a hassle. Indeed, prayer is the act of seeing beyond this worldly life, and thus it is the most important we can do. Thinking your time is somehow more important than praying to God is nothing short of arrogance.
+
 **verses 110 - 120**
 
 > [!NOTE] > **Summary**: It's pointless to argue about which religion is correct - the correct action is to submit to Allah and do good, and all other technicalities between religions are missing the point. Follow divine will, don't ask for signs. Allah doesn't show signs because he knows what happens if he shows people. They will be arrogant and ask for more, always questioning and never believing.
@@ -39,6 +49,12 @@ Allah also points out their hesitance in accepting new scripture:
 Allah says that he selects whoever he wills for his mercy, and that nobody has any right to say "you are going to hell while I am going to heaven." Anybody who submits themselves to Allah and does good will go to heaven.
 
 > "The Jews and Christians each claim that none will enter Paradise except those of their own faith. These are their desires. Reply, ˹O Prophet,˺ “Show ˹me˺ your proof if what you say is true.” But no! Whoever submits themselves to Allah and does good will have their reward with their Lord. And there will be no fear for them, nor will they grieve." (111-112)
+
+Allah points out the irony in each faith group reserving heaven only for themselves when they both recite the same scripture. 
+
+>The Jews say, “The Christians have nothing to stand on” and the Christians say, “The Jews have nothing to stand on,” although both recite the Scriptures. And those ˹pagans˺ who have no knowledge say the same ˹about people of faith˺. Surely Allah will judge between them on the Day of Judgment regarding their dispute. (113)
+
+>˹He is˺ the Originator of the heavens and the earth! When He decrees a matter, He simply tells it, “Be!” And it is! (117)
 
 Allah also tells people to not excessively ask the prophet for miracles or continuously question him because there is a raison d'etre for everything Allah does, but divine wisdom alone knows what that is, and the creature has no right to determine the precise mode of his Creator's acts -- he should not even ask the why and wherefore of a divine action, but accept it and submit himself to the Divine Will.
 
@@ -74,11 +90,15 @@ Every religion has their own direction in which they turn towards to pray, and m
 
 > Since We have sent you a messenger from among yourselves—reciting to you Our revelations, purifying you, teaching you the Book and wisdom, and teaching you what you never knew—remember Me; I will remember you. And thank Me, and never be ungrateful. (151-152)
 
+Allah will remember you if you remember him
+
 > O believers! Seek comfort in patience and prayer. Allah is truly with those who are patient. (153)
 
 > Never say that those martyred in the cause of Allah are dead—in fact, they are alive! But you do not perceive it. (154)
 
 > We will certainly test you with a touch of fear and famine and loss of property, life, and crops. Give good news to those who patiently endure—who say, when struck by a disaster, “Surely to Allah we belong and to Him we will ˹all˺ return.” They are the ones who will receive Allah’s blessings and mercy. And it is they who are ˹rightly˺ guided. (155)
+
+Allah will test all the believers with suffering to see who are the true believers in something beyond this worldly life.
 
 **verses 160 to 170**
 
