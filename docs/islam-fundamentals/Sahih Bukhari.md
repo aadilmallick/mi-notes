@@ -939,8 +939,6 @@ Upon your death, if there are 4 people that can attest to your good character, t
 
 ## Book 53: peacemaking
 
->https://x.com/
-
 **it's ok to lie for the sake of peace**
 
 >The Prophet ﷺ said: _“He who makes peace between people by inventing good information or saying good things is not a liar.”_
@@ -1069,3 +1067,329 @@ If you fulfill Allah's covenant for you to worship him and only him, then he wil
 **charity is obligatory on every joint**
 
 >The Prophet (ﷺ) said, "Charity is obligatory everyday on every joint of a human being. If one helps a person in matters concerning his riding animal by helping him to ride it or by lifting his luggage on to it, all this will be regarded charity. A good word, and every step one takes to offer the compulsory Congregational prayer, is regarded as charity; and guiding somebody on the road is regarded as charity."
+
+
+**story: the bedouin who tried to kill the prophet**
+
+This is an amazing story where a man wanted to kill the prophet pbuh, but the prophet woke up and was not afraid. The prophet did not beg for his life because he knew Allah would protect him.
+
+>That he proceeded in the company of Allah's Messenger (ﷺ) towards Najd to participate in a Ghazwa. (Holybattle) When Allah's Messenger (ﷺ) returned, he too returned with him. Midday came upon them while they were in a valley having many thorny trees. Allah's Messenger (ﷺ) and the people dismounted and dispersed to rest in the shade of the trees. Allah's Messenger (ﷺ) rested under a tree and hung his sword on it. We all took a nap and suddenly we heard Allah's Messenger (ﷺ) calling us. (We woke up) to see a bedouin with him. The Prophet (ﷺ) said, "This bedouin took out my sword while I was sleeping and when I woke up, I found the unsheathed sword in his hand and he challenged me saying, 'Who will save you from me?' I said thrice, 'Allah.' The Prophet (ﷺ) did not punish him but sat down.
+
+**difference in charity between miser and charitable person**
+
+The Prophet (ﷺ) compares both individuals to men wearing iron cloaks.
+
+- The **charitable person** is described as someone whose cloak expands and covers their body every time they give, providing ease and comfort. This represents the spiritual and physical relief, blessings, and generosity that come from giving charity.
+    
+- The **miser** is depicted with a cloak that is too tight, with rings that constrict and press against his body. When he tries to give charity, the cloak tightens further, painfully restricting his movement. This illustrates the struggle and anguish a miser experiences when faced with the act of giving, showing how stinginess leads to a feeling of being trapped and unable to perform a good deed. The hadith emphasizes this by stating the miser "tries to widen it but in vain," highlighting the futility of his struggle against his own miserly nature.
+
+>The Prophet (ﷺ) said, "The example of a miser and the one who gives in charity, is like the example of two men wearing iron cloaks so tightly that their arms are raised forcibly towards their collar-bones. So, whenever a charitable person wants to give in charity, his cloak spreads over his body so much so that it wipes out his traces, but whenever the miser wants to give in charity, the rings (of the iron cloak) come closer to each other and press over his body, and his hands gets connected to his collarbones. Abu Huraira heard the Prophet (ﷺ) saying. "The miser then tries to widen it but in vain."
+
+**the meeting with heraclius**
+
+>Allah's Messenger (ﷺ) wrote to Caesar and invited him to Islam and sent him his letter with Dihya Al-Kalbi whom Allah's Messenger (ﷺ) ordered to hand it over to the Governor of Busra who would forward it to Caesar. Caesar as a sign of gratitude to Allah, had walked from Hims to Ilya (i.e. Jerusalem) when Allah had granted Him victory over the Persian forces. So, when the letter of Allah's Messenger (ﷺ) reached Caesar, he said after reading it, 'Seek for me any one of his people! (Arabs of Quraish tribe) if present here, in order to ask him about Allah's Messenger (ﷺ). At that time Abu Sufyan bin Harb was in Sham with some men from Quraish who had come (to Sham) as merchants during the truce that had been concluded between Allah's Messenger (ﷺ); and the infidels of Quraish. Abu Sufyan said, Caesar's messenger found us somewhere in Sham so he took me and my companions to Ilya and we were admitted into Ceasar's court to find him sitting in his royal court wearing a crown and surrounded by the senior dignitaries of the Byzantine. He said to his translator. 'Ask them who amongst them is a close relation to the man who claims to be a prophet." Abu Sufyan added, "I replied, 'I am the nearest relative to him.' He asked, 'What degree of relationship do you have with him?' I replied, 'He is my cousin,' and there was none of Bani Abu Manaf in the caravan except myself. Caesar said, 'Let him come nearer.' He then ordered that my companions stand behind me near my shoulder and said to his translator, 'Tell his companions that I am going to ask this man about the man who claims to be a prophet. If he tells a lie, they should contradict him immediately." Abu Sufyan added, "By Allah! Had it not been shameful that my companions label me a liar, I would not have spoken the truth about him when he asked me. But I considered it shameful to be called a liar by my companions. So I told the truth. He then said to his translator, 'Ask him what kind of family does he belong to.' I replied, 'He belongs to a noble family amongst us.' He said, 'Have anybody else amongst you ever claimed the same before him? 'I replied, 'No.' He said, 'Had you ever blamed him for telling lies before he claimed what he claimed? ' I replied, 'No.' He said, 'Was anybody amongst his ancestors a king?' I replied, 'No.' He said, "Do the noble or the poor follow him?' I replied, 'It is the poor who follow him.' He said, 'Are they increasing or decreasing (day by day)?' I replied,' They are increasing.' He said, 'Does anybody amongst those who embrace his (the Prophet's) Religion become displeased and then discard his Religion?'. I replied, 'No. ' He said, 'Does he break his promises? I replied, 'No, but we are now at truce with him and we are afraid that he may betray us." Abu Sufyan added, "Other than the last sentence, I could not say anything against him. Caesar then asked, 'Have you ever had a war with him?' I replied, 'Yes.' He said, 'What was the outcome of your battles with him?' I replied, 'The result was unstable; sometimes he was victorious and sometimes we.' He said, 'What does he order you to do?' I said, 'He tells us to worship Allah alone, and not to worship others along with Him, and to leave all that our fore-fathers used to worship. He orders us to pray, give in charity, be chaste, keep promises and return what is entrusted to us.' When I had said that, Caesar said to his translator, 'Say to him: I ask you about his lineage and your reply was that he belonged to a noble family. In fact, all the apostles came from the noblest lineage of their nations. Then I questioned you whether anybody else amongst you had claimed such a thing, and your reply was in the negative. If the answer had been in the affirmative, I would have thought that this man was following a claim that had been said before him. When I asked you whether he was ever blamed for telling lies, your reply was in the negative, so I took it for granted that a person who did not tell a lie about (others) the people could never tell a lie about Allah. Then I asked you whether any of his ancestors was a king. Your reply was in the negative, and if it had been in the affirmative, I would have thought that this man wanted to take back his ancestral kingdom. When I asked you whether the rich or the poor people followed him, you replied that it was the poor who followed him. In fact, such are the followers of the apostles. Then I asked you whether his followers were increasing or decreasing. You replied that they were increasing. In fact, this is the result of true faith till it is complete (in all respects). I asked you whether there was anybody who, after embracing his religion, became displeased and discarded his religion; your reply was in the negative. In fact, this is the sign of true faith, for when its cheerfulness enters and mixes in the hearts completely, nobody will be displeased with it. I asked you whether he had ever broken his promise. You replied in the negative. And such are the apostles; they never break their promises. When I asked you whether you fought with him and he fought with you, you replied that he did, and that sometimes he was victorious and sometimes you. Indeed, such are the apostles; they are put to trials and the final victory is always theirs. Then I asked you what he ordered you. You replied that he ordered you to worship Allah alone and not to worship others along with Him, to leave all that your fore-fathers used to worship, to offer prayers, to speak the truth, to be chaste, to keep promises, and to return what is entrusted to you. These are really the qualities of a prophet who, I knew (from the previous Scriptures) would appear, but I did not know that he would be from amongst you. If what you say should be true, he will very soon occupy the earth under my feet, and if I knew that I would reach him definitely, I would go immediately to meet Him; and were I with him, then I would certainly wash his feet.' " Abu Sufyan added, "Caesar then asked for the letter of Allah's Messenger (ﷺ) and it was read. Its contents were: "In the name of Allah, the most Beneficent, the most Merciful (This letter is) from Muhammad, the slave of Allah, and His Apostle, to Heraculius, the Ruler of the Byzantine. Peace be upon the followers of guidance. Now then, I invite you to Islam (i.e. surrender to Allah), embrace Islam and you will be safe; embrace Islam and Allah will bestow on you a double reward. But if you reject this invitation of Islam, you shall be responsible for misguiding the tillers (i.e. your nation). O people of the Scriptures! Come to a word common to you and us and you, that we worship. None but Allah, and that we associate nothing in worship with Him; and that none of us shall take others as Lords besides Allah. Then if they turn away, say: Bear witness that we are (they who have surrendered (unto Him)..(3.64) Abu Sufyan added, "When Heraclius had finished his speech, there was a great hue and cry caused by the Byzantine Royalties surrounding him, and there was so much noise that I did not understand what they said. So, we were turned out of the court. When I went out with my companions and we were alone, I said to them, 'Verily, Ibn Abi Kabsha's (i.e. the Prophet's) affair has gained power. This is the King of Bani Al-Asfar fearing him." Abu Sufyan added, "By Allah, I remained low and was sure that his religion would be victorious till Allah converted me to Islam, though I disliked it."
+
+**the order to fight**
+
+>Allah 's Apostle said, " I have been ordered to fight with the people till they say, 'None has the right to be worshipped but Allah,' and whoever says, 'None has the right to be worshipped but Allah,' his life and property will be saved by me except for Islamic law, and his accounts will be with Allah, (either to punish him or to forgive him.)"
+
+**obey the prophet**
+
+>That heard Allah's Messenger (ﷺ) saying, "We are the last but will be the foremost to enter Paradise)." The Prophet added, "He who obeys me, obeys Allah, and he who disobeys me, disobeys Allah. He who obeys the chief, obeys me, and he who disobeys the chief, disobeys me. The Imam is like a shelter for whose safety the Muslims should fight and where they should seek protection. If the Imam orders people with righteousness and rules justly, then he will be rewarded for that, and if he does the opposite, he will be responsible for that."
+
+**the disgustingness of taking back charity or a gift**
+
+>I heard Umar bin Al-Khattab saying, "I gave a horse to be ridden in Allah's Cause and the person who got it intended to sell it or neglected it. So, I wanted to buy it as I thought he would sell it cheap. I consulted the Prophet (ﷺ) who said, "Do not buy it even if for one Dirham, because he who takes back his gift is like a dog swallowing its vomit."
+
+>Umar bin Al-Khattab gave a horse to be ridden in Allah's Cause and then he found it being sold. He intended to purchase it. So, he consulted Allah's Messenger (ﷺ) who said, "Don't buy it and don't take back your gift of charity."
+
+**women cannot travel without mahram**
+
+>That he heard the Prophet (ﷺ) saying, "It is not permissible for a man to be alone with a woman, and no lady should travel except with a Muhram (i.e. her husband or a person whom she cannot marry in any case for ever; e.g. her father, brother, etc.)." Then a man got up and said, "O Allah's Messenger (ﷺ)! I have enlisted in the army for such-and-such Ghazwa and my wife is proceeding for Hajj." Allah's Messenger (ﷺ) said, "Go, and perform the Hajj with your wife."
+
+**the virtues of spreading islam peacefully**
+
+>On the day (of the battle) of Khaibar the Prophet (ﷺ) said, "Tomorrow I will give the flag to somebody who will be given victory (by Allah) and who loves Allah and His Apostle and is loved by Allah and His Apostle." So, the people wondered all that night as to who would receive the flag and in the morning everyone hoped that he would be that person. Allah's Messenger (ﷺ) asked, "Where is Ali?" He was told that Ali was suffering from eye-trouble, so he applied saliva to his eyes and invoked Allah to cure him. He at once got cured as if he had no ailment. The Prophet (ﷺ) gave him the flag. Ali said, "Should I fight them till they become like us (i.e. Muslim)?" The Prophet (ﷺ) said, "Go to them patiently and calmly till you enter the land. Then, invite them to Islam, and inform them what is enjoined upon them, for, by Allah, if Allah gives guidance to somebody through you, it is better for you than possessing red camels."
+
+**kill a muslim if he apostates**
+
+>Ali burnt some people and this news reached Ibn Abbas, who said, "Had I been in his place I would not have burnt them, as the Prophet (ﷺ) said, 'Don't punish (anybody) with Allah's Punishment.' No doubt, I would have killed them, for the Prophet (ﷺ) said, 'If somebody (a Muslim) discards his religion, kill him.' "
+
+**the impermissibility of genocide**
+
+- **Justice and Proportion:** The main takeaway is the importance of a just and proportionate response. The prophet's act was excessive—he punished an entire community of creatures for the actions of one individual.
+    
+- **Respect for Creation:** It highlights the sanctity of all of Allah's creations. The ants were described as "a nation amongst the nations that glorify Allah," emphasizing that even small creatures have a purpose and are part of a larger divine order.
+
+Justice should only be proportionate. Allah despises those that perform collective punishment because of the actions of one person.
+
+>I heard Allah's Messenger (ﷺ) saying, "An ant bit a Prophet amongst the Prophets, and he ordered that the place of the ants be burnt. So, Allah inspired to him, 'It is because one ant bit you that you burnt a nation amongst the nations that glorify Allah?"
+
+**treat people with ease**
+
+>That his father said, "The Prophet (ﷺ) sent Muadh and Abu Musa to Yemen telling them. 'Treat the people with ease and don't be hard on them; give them glad tidings and don't fill them with aversion; and love each other, and don't differ."
+
+**no muslim should be killed for killing an infidel**
+
+>I asked Ali, "Do you have the knowledge of any Divine Inspiration besides what is in Allah's Book?" Ali replied, "No, by Him Who splits the grain of corn and creates the soul. I don't think we have such knowledge, but we have the ability of understanding which Allah may endow a person with, so that he may understand the Qur'an, and we have what is written in this paper as well." I asked, "What is written in this paper?" He replied, "(The regulations of) blood-money, the freeing of captives, and the judgment that no Muslim should be killed for killing an infidel."
+
+**the dajjal is unable to be killed**
+
+- **The Dajjal's Protection:** The Prophet's (ﷺ) statement to Umar reveals a crucial point about the Dajjal—that no one, not even a great companion like Umar, will be able to kill him except for Jesus (peace be upon him) upon his return.
+
+- **Prohibition of Unjustified Killing:** The Prophet (ﷺ) prevented Umar from killing the boy, emphasizing that killing a person based on suspicion is not permissible, especially if the person is not a clear and present threat.
+
+>(Later on) Allah's Messenger (ﷺ) (once again) went along with Ubai bin Ka'b to the garden of date-palms where Ibn Saiyad was staying. When the Prophet entered the garden, he started hiding himself behind the trunks of the date-palms as he wanted to hear something from the Ibn Saiyad before the latter could see him. Ibn Saiyad was lying in his bed, covered with a velvet sheet from where his murmurs were heard. Ibn Saiyad's mother saw the Prophet (ﷺ) while he was hiding himself behind the trunks of the date-palms. She addressed Ibn Saiyad, "O Saf!" (And this was his name). Ibn Saiyad got up. The Prophet (ﷺ) said, "Had this woman let him to himself, he would have revealed the reality of his case." Then the Prophet (ﷺ) got up amongst the people, glorifying Allah as He deserves, he mentioned Ad-Dajjal, saying, "I warn you about him (i.e. Ad-Dajjal) and there is no prophet who did not warn his nation about him, and Noah warned his nation about him, but I tell you a statement which no prophet informed his nation of. You should understand that he is a one-eyed man and Allah is not one-eyed."
+
+**Even muslims can go to hell**
+
+THis guy fought for other than Allah - he fought for fame and glory. He killed himself when times got tough.
+
+
+>We were in the company of Allah's Messenger (ﷺ) in a Ghazwa, and he remarked about a man who claimed to be a Muslim, saying, "This (man) is from the people of the (Hell) Fire." When the battle started, the man fought violently till he got wounded. Somebody said, "O Allah's Messenger (ﷺ)! The man whom you described as being from the people of the (Hell) Fire fought violently today and died." The Prophet (ﷺ) said, "He will go to the (Hell) Fire." Some people were on the point of doubting (the truth of what the Prophet had said) while they were in this state, suddenly someone said that he was still alive but severely wounded. When night fell, he lost patience and committed suicide. The Prophet (ﷺ) was informed of that, and he said, "Allah is Greater! I testify that I am Allah's Slave and His Apostle." Then he ordered Bilal to announce amongst the people: 'None will enter Paradise but a Muslim, and Allah may support this religion (i.e. Islam) even with a disobedient man.
+
+**no migration after mecca**
+
+>Mujashi (bin Masud) took his brother Mujalid bin Musud to the Prophet (ﷺ) and said, "This is Mujalid and he will give a pledge of allegiance to you for migration." The Prophet (ﷺ) said, "There is no migration after the Conquest of Mecca, but I will take his pledge of allegiance for Islam."
+
+## Book 57: war booty
+
+**satan circulates like blood in the body**
+
+>"Satan circulates in the mind of a person as blood does (in his body). I was afraid that Satan might put some (evil) thoughts in your minds."
+
+**the best dua**
+
+>Fatima complained of what she suffered from the hand mill and from grinding, when she got the news that some slave girls of the booty had been brought to Allah's Messenger (ﷺ). She went to him to ask for a maid-servant, but she could not find him, and told Aisha of her need. When the Prophet (ﷺ) came, Aisha informed him of that. The Prophet (ﷺ) came to our house when we had gone to our beds. (On seeing the Prophet) we were going to get up, but he said, 'Keep at your places,' I felt the coolness of the Prophet's feet on my chest. Then he said, "Shall I tell you a thing which is better than what you asked me for? When you go to your beds, say: 'Allahu Akbar (i.e. Allah is Greater)' for 34 times, and 'Al hamdu Li llah (i.e. all the praises are for Allah)' for 33 times, and Subhan Allah (i.e. Glorified be Allah) for 33 times. This is better for you than what you have requested."
+
+**spending the wealth allah gave you unjustly**
+
+>I heard Allah's Messenger (ﷺ) saying, "Some people spend Allah's Wealth (i.e. Muslim's wealth) in an unjust manner; such people will be put in the (Hell) Fire on the Day of Resurrection."
+
+**guarantee of heaven given to martyrs**
+
+>Allah's Messenger (ﷺ) said, "Allah guarantees him who strives in His Cause and whose motivation for going out is nothing but Jihad in His Cause and belief in His Word, that He will admit him into Paradise (if martyred) or bring him back to his dwelling place, whence he has come out, with what he gains of reward and booty."
+
+## Book 58 jizya
+
+**impermissibility to kill non-muslim who has treaty with muslims**
+
+>The Prophet (ﷺ) said, "Whoever killed a person having a treaty with the Muslims, shall not smell the smell of Paradise though its smell is perceived from a distance of forty years."
+
+**how to tell who's a hypocrite**
+
+>Allah's Messenger (ﷺ) said, "Whoever has (the following) four characteristics will be a pure hypocrite: "If he speaks, he tells a lie; if he gives a promise, he breaks it, if he makes a covenant he proves treacherous; and if he quarrels, he behaves in a very imprudent evil insulting manner (unjust). And whoever has one of these characteristics, has one characteristic of a hypocrite, unless he gives it us."
+
+## Book 59
+
+**What covenants Allah created at the beginning of creating**
+
+>Allah's Messenger (ﷺ) said, "Allah the Most Superior said, "The son of Adam slights Me, and he should not slight Me, and he disbelieves in Me, and he ought not to do so. As for his slighting Me, it is that he says that I have a son; and his disbelief in Me is his statement that I shall not recreate him as I have created (him) before."
+
+>Allah's Messenger (ﷺ) said, "When Allah completed the creation, He wrote in His Book which is with Him on His Throne, "My Mercy overpowers My Anger."
+
+**taking land unjustly**
+
+>The Prophet (ﷺ) said, "Any person who takes a piece of land unjustly will sink down the seven earths on the Day of Resurrection."
+
+**eclipses**
+
+>The Prophet (ﷺ) said, "The sun and the moon do not eclipse because of someone's death or life (i.e. birth), but they are two signs amongst the Signs of Allah. So, if you see them (i.e. eclipse) offer the (eclipse) prayer.
+
+>On the day of a solar eclipse, Allah's Messenger (ﷺ) stood up (to offer the eclipse prayer). He recited Takbir, recited a long recitation (of Holy Verses), bowed a long bowing, and then he raised h is head saying. "Allah hears him who sends his praises to Him." Then he stayed standing, recited a long recitation again, but shorter than the former, bowed a long bowing, but shorter than the first, performed a long prostration and then performed the second raka in the same way as he had done the first. By the time he had finished his prayer with Taslim, the solar eclipse had been over. Then he addressed the people referring to the solar and lunar eclipses saying, "These are two signs amongst the Signs of Allah, and they do not eclipse because of anyone's death or life. So, if you see them, hasten for the Prayer."
+
+**Angels will ove yo**
+
+>The Prophet (ﷺ) said, "If Allah loves a person, He calls Gabriel saying, 'Allah loves so and-so; O Gabriel! Love him.' Gabriel would love him and make an announcement amongst the inhabitants of the Heaven. 'Allah loves so-and-so, therefore you should love him also,' and so all the inhabitants of the Heaven would love him, and then he is granted the pleasure of the people on the earth."
+
+
+**gabriel leading in prayer**
+
+>Once `Umar bin `Abdul `Aziz delayed the Asr prayer a little. `Urwa said to him, "Gabriel descended and led the prayer in front of the Prophet (ﷺ) " On that `Umar said, "O `Urwa! Be sure of what you say." "Urwa, "I heard Bashir bin Abi Masud narrating from Ibn Masud who heard Allah's Messenger (ﷺ) saying, 'Gabriel descended and led me in prayer; and then prayed with him again, and then prayed with him again, and then prayed with him again, and then prayed with him again, counting with his fingers five prayers."
+
+**the virtues of praying**
+
+>The Prophet (ﷺ) said, "Angels keep on descending from and ascending to the Heaven in turn, some at night and some by daytime, and all of them assemble together at the time of the Fajr and `Asr prayers. Then those who have stayed with you over-night, ascent unto Allah Who asks them, and He knows the answer better than they, "How have you left My slaves?" They reply, "We have left them praying as we found them praying." If anyone of you says "Amin" (during the Prayer at the end of the recitation of Surat-al-Faitiha), and the angels in Heaven say the same, and the two sayings coincide, all his past sins will be forgiven."
+
+**how paradise will be like**
+
+>Allah's Messenger (ﷺ) said, "The first group (of people) who will enter Paradise will be (glittering) like the moon when it is full. They will not spit or blow their noses or relieve nature. Their utensils will be of gold and their combs of gold and silver; in their centers the aloe wood will be used, and their sweat will smell like musk. Everyone of them will have two wives; the marrow of the bones of the wives' legs will be seen through the flesh out of excessive beauty. They ( i.e. the people of Paradise) will neither have differences nor hatred amongst themselves; their hearts will be as if one heart and they will be glorifying Allah in the morning and in the evening."
+
+**Only 70000 muslims will enter paradise**
+
+In order to be a part of this small percentage, you need to give up all you cherish for the sake of AAllah and pray to him all the time
+
+>The Prophet (ﷺ) said, "Verily! 70,000 or 700,000 of my followers will enter Paradise altogether; so that the first and the last amongst them will enter at the same time, and their faces will be glittering like the bright full moon."
+
+**the disgustingness of missing fajr**
+
+the prophet himself is saying here that if you slept through fajr, it's as if satan urinated in ur ears. Don't be that guy.
+
+>It was mentioned before the Prophet (ﷺ) that there was a man who slept the night till morning (after sunrise). The Prophet (ﷺ) said, "He is a man in whose ears (or ear) Satan had urinated."
+
+**forgetting rakah**
+
+Being mindful during prayer is an important thing. If you are forgetful, do the rakats of forgetfulness
+
+>The Prophet (ﷺ) said, "When the call for the prayer is pronounced, Satan takes to his heels, passing wind with noise, When the call for the prayer is finished, he comes back. And when the Iqama is pronounced, he again takes to his heels, and after its completion, he returns again to interfere between the (praying) person and his heart, saying to him. 'Remember this or that thing.' till the person forgets whether he has offered three or four rak`at: so if one forgets whether he has prayed three or four rak`at, he should perform two prostrations of Sahu (i.e. forgetfulness).
+
+
+**importance of reflection**
+
+> An hour of reflection is better than a year of worship
+
+**importance of not killing animals**
+
+>Once we were in the company of Allah's Messenger (ﷺ) in a cave. Surat-al-Mursalat (77) was revealed there, and we were learning it from Allah's Messenger (ﷺ) . Suddenly a snake came out of its hole and we rushed towards it to kill it, but it hastened and entered its hole before we were able to catch it. Allah's Messenger (ﷺ) said," It has been saved from your evil and you have been saved from its evil."
+
+## Book 60
+
+**What you will look like when you enter paradise**
+
+>Allah's Messenger (ﷺ) said, "The first group of people who will enter Paradise, will be glittering like the full moon and those who will follow them, will glitter like the most brilliant star in the sky. They will not urinate, relieve nature, spit, or have any nasal secretions. Their combs will be of gold, and their sweat will smell like musk. The aloes-wood will be used in their centers. Their wives will be houris. All of them will look alike and will resemble their father Adam (in stature), sixty cubits tall."
+
+**conversion of famous rabbi to islam**
+
+This is a story of a famous rabbi asking the prophet pbuh three things that nobody would know except a prophet. The prophet answered all of them correctly, and thus the famous, well-liked rabbi converted to islam, and tested his followers, who hypocritically badmouthed him as soon as he converted to islam.
+
+>When Abdullah bin Salam heard the arrival of the Prophet (ﷺ) at Medina, he came to him and said, "I am going to ask you about three things which nobody knows except a prophet: What is the first portent of the Hour? What will be the first meal taken by the people of Paradise? Why does a child resemble its father, and why does it resemble its maternal uncle" Allah's Messenger (ﷺ) said, "Gabriel has just now told me of their answers." Abdullah said, "He (i.e. Gabriel), from amongst all the angels, is the enemy of the Jews." Allah's Messenger (ﷺ) said, "The first portent of the Hour will be a fire that will bring together the people from the east to the west; the first meal of the people of Paradise will be Extra-lobe (caudate lobe) of fish-liver. As for the resemblance of the child to its parents: If a man has sexual intercourse with his wife and gets discharge first, the child will resemble the father, and if the woman gets discharge first, the child will resemble her." On that Abdullah bin Salam said, "I testify that you are the Messenger of Allah." Abdullah bin Salam further said, "O Allah's Messenger (ﷺ)! The Jews are liars, and if they should come to know about my conversion to Islam before you ask them (about me), they would tell a lie about me." The Jews came to Allah's Messenger (ﷺ) and Abdullah went inside the house. Allah's Apostle asked (the Jews), "What kind of man is Abdullah bin Salam amongst you?" They replied, "He is the most learned person amongst us, and the best amongst us, and the son of the best amongst us." Allah's Messenger (ﷺ) said, "What do you think if he embraces Islam (will you do as he does)?" The Jews said, "May Allah save him from it." Then Abdullah bin Salam came out in front of them saying, "I testify that None has the right to be worshipped but Allah and that Muhammad is the Apostle of Allah." Thereupon they said, "He is the evilest among us, and the son of the evilest amongst us," and continued talking badly of him.
+
+**description of human lifecycle**
+
+>Allah's Messenger (ﷺ), the true and truly inspired said, "(as regards your creation), every one of you is collected in the womb of his mother for the first forty days, and then he becomes a clot for another forty days, and then a piece of flesh for another forty days. Then Allah sends an angel to write four items: He writes his deeds, time of his death, means of his livelihood, and whether he will be wretched or blessed (in religion). Then the soul is breathed into his body. So a man may do deeds characteristic of the people of the (Hell) Fire, so much so that there is only the distance of a cubit between him and it, and then what has been written (by the angel) surpasses, and so he starts doing deeds characteristic of the people of Paradise and enters Paradise. Similarly, a person may do deeds characteristic of the people of Paradise, so much so that there is only the distance of a cubit between him and it, and then what has been written (by the angel) surpasses, and he starts doing deeds of the people of the (Hell) Fire and enters the (Hell) Fire."
+
+**All prophets are equal**
+
+>Once while a Jew was selling something, he was offered a price that he was not pleased with. So, he said, "No, by Him Who gave Moses superiority over all human beings!" Hearing him, an Ansari man got up and slapped him on the face and said, "You say: By Him Who Gave Moses superiority over all human beings although the Prophet (Muhammad) is present amongst us!" The Jew went to the Prophet and said, "O Abu-l-Qasim! I am under the assurance and contract of security, so what right does so-and-so have to slap me?" The Prophet (ﷺ) asked the other, "Why have you slapped". He told him the whole story. The Prophet (ﷺ) became angry, till anger appeared on his face, and said, "Don't give superiority to any prophet amongst Allah's Prophets, for when the trumpet will be blown, everyone on the earth and in the heavens will become unconscious except those whom Allah will exempt. The trumpet will be blown for the second time and I will be the first to be resurrected to see Moses holding Allah's Throne. I will not know whether the unconsciousness which Moses received on the Day of Tur has been sufficient for him, or has he got up before me. And I do not say that there is anybody who is better than Yunus bin Matta."
+
+**do not be overzealous in deeds**
+
+it is important to avoid burnout. Even the prophet is saying that moderation is key
+
+>Allah's Messenger (ﷺ) was informed that I have said: "By Allah, I will fast all the days and pray all the nights as long as I live." On that, Allah's Messenger (ﷺ) asked me. "Are you the one who says: 'I will fast all the days and pray all the nights as long as I live?' " I said, "Yes, I have said it." He said, "You cannot do that. So fast (sometimes) and do not fast (sometimes). Pray and sleep. Fast for three days a month, for the reward of a good deed is multiplied by ten time, and so the fasting of three days a month equals the fasting of a year." I said, "O Allah's Messenger (ﷺ)! I can do (fast) more than this." He said, "Fast on every third day. I said: I can do (fast) more than that, He said: "Fast on alternate days and this was the fasting of David which is the most moderate sort of fasting." I said, "O Allah's Messenger (ﷺ)! I can do (fast) more than that." He said, "There is nothing better than that."
+
+>he Prophet (ﷺ) said to me, "I have been informed that you pray all the nights and observe fast all the days; is this true?" I replied, "Yes." He said, "If you do so, your eyes will become weak and you will get bored. So fast three days a month, for this will be the fasting of a whole year, or equal to the fasting of a whole year." I said, "I find myself able to fast more." He said, "Then fast like the fasting of (the Prophet) David who used to fast on alternate days and would not flee on facing the enemy.
+
+**most beloved prayer and fast by david**
+
+>Allah's Messenger (ﷺ) said to me, "The most beloved fasting to Allah was the fasting of (the Prophet) David who used to fast on alternate days. And the most beloved prayer to Allah was the prayer of David who used to sleep for (the first) half of the night and pray for 1/3 of it and (again) sleep for a sixth of it."
+
+**stories: babies who spoke in the cradle**
+
+1. Juraij was a righteous man and was handsome, so a lady wanted to seduce him, but Juraij refused, so she falsely accused juraij of impregnating her. Juraij asked her baby who her father was, and the baby spoke from the cradle to clear juraij's innocence
+2. Jesus spoke from the cradle
+3. In a story about how it is better to be the oppressed or the downtrodden rather than being the oppressor or someone in love with the worldly life, a woman made dua to make her baby like the handsome rider, but Allah made the baby speak saying a dua in order for him to grow up and not become like the handsome rider, but rather as the oppressed slave girl;
+
+>The Prophet (ﷺ) said, "None spoke in cradle but three: (The first was) Jesus, (the second was), there a man from Bani Israel called Juraij. While he was offering his prayers, his mother came and called him. He said (to himself), 'Shall I answer her or keep on praying?" (He went on praying) and did not answer her, his mother said, "O Allah! Do not let him die till he sees the faces of prostitutes." So while he was in his hermitage, a lady came and sought to seduce him, but he refused. So she went to a shepherd and presented herself to him to commit illegal sexual intercourse with her and then later she gave birth to a child and claimed that it belonged to Juraij. The people, therefore, came to him and dismantled his hermitage and expelled him out of it and abused him. Juraij performed the ablution and offered prayer, and then came to the child and said, 'O child! Who is your father?' The child replied, 'The shepherd.' (After hearing this) the people said, 'We shall rebuild your hermitage of gold,' but he said, 'No, of nothing but mud.'(The third was the hero of the following story) A lady from Bani Israel was nursing her child at her breast when a handsome rider passed by her. She said, 'O Allah ! Make my child like him.' On that the child left her breast, and facing the rider said, 'O Allah! Do not make me like him.' The child then started to suck her breast again. (Abu Huraira further said, "As if I were now looking at the Prophet (ﷺ) sucking his finger (in way of demonstration.") After a while the people passed by, with a lady slave and she (i.e. the child's mother) said, 'O Allah! Do not make my child like this (slave girl)!, On that the child left her breast and said, 'O Allah! Make me like her.' When she asked why, the child replied, 'The rider is one of the tyrants while this slave girl is falsely accused of theft and illegal sexual intercourse."
+
+**story: the leper, the bald man, and the blind man**
+
+This is a story about gratefulness. 
+
+1. An angel cured the leper of sickness and then was given a herd of camels, and when the angel disguised himself as a leper and asked for a camel back, the leper refused because he said he deserved his sickness being cured rather than God curing it for him.
+2. An angel cured the bald man of his baldness and then was given a herd of cows, and when the angel disguised himself as a bald man and asked for a cow back, the bald man refused because he said he deserved his hair rather than God giving him hair.
+3. The final man whom the angel cured of blindness was actually grateful and gave the angel his sheep because he remembered his past where he was blind and poor but Allah made him rich and sighted.
+
+
+>that he heard Allah's Messenger (ﷺ) saying, "Allah willed to test three Israelis who were a Leper, a blind man and a bald-headed man. So, he sent them an angel who came to the leper and said, 'What thing do you like most?' He replied, 'Good color and good skin, for the people have a strong aversion to me.' The angel touched him and his illness was cured, and he was given a good color and beautiful skin. The angel asked him, 'What kind of property do you like best?' He replied, 'Camels (or cows).' (The narrator is in doubt, for either the leper or the bald-headed man demanded camels and the other demanded cows). So he (i.e. the leper) was given a pregnant she-camel, and the angel said (to him), 'May Allah bless you in it.' The angel then went to the bald-headed man and said, 'What thing do you like most?' He said, 'I like good hair and wish to be cured of this disease, for the people feel repulsion for me.' The angel touched him and his illness was cured, and he was given good hair. The angel asked (him), 'What kind of property do you like best?' He replied, 'Cows,' The angel gave him a pregnant cow and said, 'May Allah bless you in it.' The angel went to the blind man and asked, 'What thing do you like best?' He said, '(I like) that Allah may restore my eye-sight to me so that I may see the people.' The angel touched his eyes and Allah gave him back his eye-sight. The angel asked him, 'What kind of property do you like best?' He replied, 'Sheep.' The angel gave him a pregnant sheep. Afterwards, all the three pregnant animals gave birth to young ones, and multiplied and brought forth so much that one of the (three) men had a herd of camels filling a valley, and one had a herd of cows filling a valley, and one had a flock of sheep filling a valley. Then the angel, disguised in the shape and appearance of a leper, went to the leper and said, I am a poor man, who has lost all means of livelihood while on a journey. So none will satisfy my need except Allah and then you. In the Name of Him Who has given you such nice color and beautiful skin, and so much property, I ask you to give me a camel so that I may reach my destination. The man replied, 'I have many obligations (so I cannot give you).' The angel said, 'I think I know you; were you not a leper to whom the people had a strong aversion? Weren't you a poor man, and then Allah gave you (all this property).' He replied, '(This is all wrong), I got this property through inheritance from my fore-fathers.' The angel said, 'If you are telling a lie, then let Allah make you as you were before. ' Then the angel, disguised in the shape and appearance of a bald man, went to the bald man and said to him the same as he told the first one, and he too answered the same as the first one did. The angel said, 'If you are telling a lie, then let Allah make you as you were before.' The angel, disguised in the shape of a blind man, went to the blind man and said, 'I am a poor man and a traveler, whose means of livelihood have been exhausted while on a journey. I have nobody to help me except Allah, and after Him, you yourself. I ask you in the Name of Him Who has given you back your eye-sight to give me a sheep, so that with its help, I may complete my journey.' The man said, 'No doubt, I was blind and Allah gave me back my eye-sight; I was poor and Allah made me rich; so take anything you wish from my property. By Allah, I will not stop you for taking anything (you need) of my property which you may take for Allah's sake.' The angel replied, 'Keep your property with you. You (i.e the three men) have been tested, and Allah is pleased with you and is angry with your two companions."
+
+**story: the famous rider**
+
+>That he heard Allah's Messenger (ﷺ) saying, "While a lady was nursing her child, a rider passed by and she said, 'O Allah! Don't let my child die till he becomes like this (rider).' The child said, 'O Allah! Don't make me like him,' and then returned to her breast (sucking it). (After a while) they passed by a lady who was being pulled and teased (by the people). The child's mother said, 'O Allah! Do not make my child like her.' The child said, 'O Allah! Make me like her.' Then he said, 'As for the rider, he is an infidel, while the lady is accused of illegal sexual intercourse (falsely) and she says: Allah is sufficient for me (He knows the truth).
+
+**story: the prostitute who went to heaven**
+
+>The Prophet (ﷺ) said, "While a dog was going round a well and was about to die of thirst, an Israeli prostitute saw it and took off her shoe and watered it. So Allah forgave her because of that good deed."
+
+**the man who killed 100**
+
+>The Prophet (ﷺ) said, "Amongst the men of Bani Israel there was a man who had murdered ninety-nine persons. Then he set out asking (whether his repentance could be accepted or not). He came upon a monk and asked him if his repentance could be accepted. The monk replied in the negative and so the man killed him. He kept on asking till a man advised to go to such and such village. (So he left for it) but death overtook him on the way. While dying, he turned his chest towards that village (where he had hoped his repentance would be accepted), and so the angels of mercy and the angels of punishment quarrelled amongst themselves regarding him. Allah ordered the village (towards which he was going) to come closer to him, and ordered the village (whence he had come), to go far away, and then He ordered the angels to measure the distances between his body and the two villages. So he was found to be one span closer to the village (he was going to). So he was forgiven."
+
+**don't leave during a plague, dying from plague is martyrdom**
+
+>Allah's Messenger (ﷺ) said, "Plague was a means of torture sent on a group of Israelis (or on some people before you). So if you hear of its spread in a land, don't approach it, and if a plague should appear in a land where you are present, then don't leave that land in order to run away from it (i.e. plague).
+
+If you don't run from the plague because you believe in Allah's decree, Allah will give you the reward of a martyr if you die from plague.
+
+>(the wife of the Prophet) I asked Allah's Messenger (ﷺ) about the plague. He told me that it was a Punishment sent by Allah on whom he wished, and Allah made it a source of mercy for the believers, for if one in the time of an epidemic plague stays in his country patiently hoping for Allah's Reward and believing that nothing will befall him except what Allah has written for him, he will get the reward of a martyr."
+
+**equal rights means equal punishments**
+
+The only thing that destroys nation is hypocrisy - letting rich, influential people get off easy while poor people are punished for the same crimes. The prophet here is showing how he is a fair arbitrer of justice, when he says that if his own daughter Fatima stole, then her hand would be cut off.
+
+>The people of Quraish worried about the lady from Bani Makhzum who had committed theft. They asked, "Who will intercede for her with Allah's Messenger (ﷺ)?" Some said, "No one dare to do so except Usama bin Zaid the beloved one to Allah's Messenger (ﷺ) ." When Usama spoke about that to Allah's Apostle Allah's Messenger (ﷺ) said, (to him), "Do you try to intercede for somebody in a case connected with Allah's Prescribed Punishments?" Then he got up and delivered a sermon saying, "What destroyed the nations preceding you, was that if a noble amongst them stole, they would forgive him, and if a poor person amongst them stole, they would inflict Allah's Legal punishment on him. By Allah, if Fatima, the daughter of Muhammad stole, I would cut off her hand."
+
+**don't care about differing in banal things**
+
+It's ok to differ about banal things such as how people recite certain quran verses.
+
+>I heard a person reciting a (Qur'anic) Verse in a certain way, and I had heard the Prophet (ﷺ) reciting the same Verse in a different way. So I took him to the Prophet (ﷺ) and informed him of that but I noticed the sign of disapproval on his face, and then he said, "Both of you are correct, so don't differ, for the nations before you differed, so they were destroyed."
+
+**story: how easily it is for Allah to resurrect**
+
+A man was afraid that Allah would punish him because he has never done any good deeds, so he ordered his body be cremated and his ashes be spread in the wind, but Allah could recollect all the particles with ease and recreate the man.
+
+This story also has a dual lesson that because the man feared Allah, he was forgiven. It is important to fear God.
+
+>The Prophet (ﷺ) said, "Amongst the people preceding your age, there was a man whom Allah had given a lot of money. While he was in his death-bed, he called his sons and said, 'What type of father have I been to you? They replied, 'You have been a good father.' He said, 'I have never done a single good deed; so when I die, burn me, crush my body, and scatter the resulting ashes on a windy day.' His sons did accordingly, but Allah gathered his particles and asked (him), 'What made you do so?' He replied, "Fear of you.' So Allah bestowed His Mercy upon him. (forgave him).
+
+**story: importance of forgiving debts**
+
+>Allah's Messenger (ﷺ) said, "A man used to give loans to the people and used to say to his servant, 'If the debtor is poor, forgive him, so that Allah may forgive us.' So when he met Allah (after his death), Allah forgave him."
+
+**if you do not feel ashamed, then do whatever you like**
+
+Shamelessness is a sign that you are doing bad things
+
+>The Prophet (ﷺ) said, "One of the sayings of the prophets which the people have got, is. 'If you do not feel ashamed, then do whatever you like.
+
+## Book 61
+
+**the 5 names of the prophet**
+
+>Allah's Messenger (ﷺ) said, "I have five names: I am Muhammad and Ahmad; I am Al-Mahi through whom Allah will eliminate infidelity; I am Al-Hashir who will be the first to be resurrected, the people being resurrected there after; and I am also Al-Aqib (i.e. There will be no prophet after me).
+
+**the beauty of the last prophet**
+
+>Allah's Messenger (ﷺ) said, "My similitude in comparison with the other prophets before me, is that of a man who has built a house nicely and beautifully, except for a place of one brick in a corner. The people go about it and wonder at its beauty, but say: 'Would that this brick be put in its place!' So I am that brick, and I am the last of the Prophets."
+
+**The badness of being a fanatic**
+
+Fanatics are those who recite the quran but it does not go past their throats.
+
+>While we were with Allah's Messenger (ﷺ) who was distributing (i.e. some property), there came Dhu-l- Khuwaisira, a man from the tribe of Bani Tamim and said, "O Allah's Messenger (ﷺ)! Do Justice." The Prophet said, "Woe to you! Who could do justice if I did not? I would be a desperate loser if I did not do justice." `Umar said, "O Allah's Messenger (ﷺ)! Allow me to chop his head off." The Prophet (ﷺ) said, "Leave him, for he has companions who pray and fast in such a way that you will consider your fasting negligible in comparison to theirs. They recite Qur'an but it does not go beyond their throats (i.e. they do not act on it) and they will desert Islam as an arrow goes through a victim's body, so that the hunter, on looking at the arrow's blade, would see nothing on it; he would look at its Risaf and see nothing: he would look at its Na,di and see nothing, and he would look at its Qudhadh ( 1 ) and see nothing (neither meat nor blood), for the arrow has been too fast even for the blood and excretions to smear. The sign by which they will be recognized is that among them there will be a black man, one of whose arms will resemble a woman's breast or a lump of meat moving loosely. Those people will appear when there will be differences amongst the people." I testify that I heard this narration from Allah's Messenger (ﷺ) and I testify that `Ali bin Abi Talib fought with such people, and I was in his company. He ordered that the man (described by the Prophet (ﷺ) ) should be looked for. The man was brought and I looked at him and noticed that he looked exactly as the Prophet (ﷺ) had described him.
+
+**the christian betrayer**
+
+What this christian did in apostasizing was so bad that the earth refused to let him stay buried when he died.
+
+>There was a Christian who embraced Islam and read Surat-al-Baqara and Al-`Imran, and he used to write for the Prophet. Later on he returned to Christianity again and he used to say: "Muhammad knows nothing but what I have written for him." Then Allah caused him to die, and the people buried him, but in the morning they saw that the earth had thrown his body out. They said, "This is the act of Muhammad and his companions. They dug the grave of our companion and took his body out of it because he had run away from them." They again dug the grave deeply for him, but in the morning they again saw that the earth had thrown his body out. They said, "This is an act of Muhammad and his companions. They dug the grave of our companion and threw his body outside it, for he had run away from them." They dug the grave for him as deep as they could, but in the morning they again saw that the earth had thrown his body out. So they believed that what had befallen him was not done by human beings and had to leave him thrown (on the ground).
+
+## Book 63
+
+**the stretngth of which you should uphold your religion**
+
+>  
+I came to the Prophet (ﷺ) while he was leaning against his sheet cloak in the shade of the Ka`ba. We were suffering greatly from the pagans in those days. i said (to him). "Will you invoke Allah (to help us)?" He sat down with a red face and said, "(A believer among) those who were before you used to be combed with iron combs so that nothing of his flesh or nerves would remain on his bones; yet that would never make him desert his religion. A saw might be put over the parting of his head which would be split into two parts, yet all that would never make him abandon his religion. Allah will surely complete this religion (i.e. Islam) so that a traveler from Sana to Hadra-maut will not be afraid of anybody except Allah." (The sub-narrator, Baiyan added, "Or the wolf, lest it should harm his sheep.")
+
+**al aqaba pledge**
+
+> Who had taken part in the battle of Badr with Allah's Messenger (ﷺ) and had been amongst his companions on the night of Al-`Aqaba Pledge: Allah's Messenger (ﷺ), surrounded by a group of his companions said, "Come along and give me the pledge of allegiance that you will not worship anything besides Allah, will not steal, will not commit illegal sexual intercourse will not kill your children, will not utter; slander, invented by yourself, and will not disobey me if I order you to do something good. Whoever among you will respect and fulfill this pledge, will be rewarded by Allah. And if one of you commits any of these sins and is punished in this world then that will be his expiation for it, and if one of you commits any of these sins and Allah screens his sin, then his matter, will rest with Allah: If He will, He will punish him and if He will,. He will excuse him." So I gave the pledge of allegiance to him for these conditions.
+
+>I was one of the Naqibs who gave the ('Aqaba) Pledge of Allegiance to Allah's Messenger (ﷺ) . We gave the pledge of allegiance to him that we would not worship anything other than Allah, would not steal, would not commit illegal sexual intercourse, would not kill a person whose killing Allah has made illegal except rightfully, would not rob each other, and we would not be promised Paradise jf we did the above sins, then if we committed one of the above sins, Allah will give His Judgment concerning it
+
+## Book 65
+
+**The greatest sin**
+
+>  I asked the Prophet, "What is the greatest sin in the Sight of Allah?" He said, "That you set up a rival unto Allah though He Alone created you." I said, "That is indeed a great sin." Then asked, "What is next?" He said, "To kill your son lest he should share your food with you." I asked, "What is next?" He said, "To commit illegal sexual intercourse with the wife of your neighbor."
+
+**being rich and not paying zakat lands you in hell**
+
+>Allah's Messenger (ﷺ) said, "Anyone whom Allah has given wealth but he does not pay its Zakat, then, on the Day of Resurrection, his wealth will be presented to him in the shape of a bald-headed poisonous male snake with two poisonous glands in its mouth and it will encircle itself round his neck and bite him over his cheeks and say, "I am your wealth; I am your treasure." Then the Prophet (ﷺ) recited this Divine Verse:-- "And let not those who covetously withhold of that which Allah has bestowed upon them of His Bounty."
+
+**we will see Allah on the day of judgement**
+
+>During the lifetime of the Prophet (ﷺ) some people said, : O Allah's Messenger (ﷺ)! Shall we see our Lord on the Day of Resurrection?" The Prophet (ﷺ) said, "Yes; do you have any difficulty in seeing the sun at midday when it is bright and there is no cloud in the sky?" They replied, "No." He said, "Do you have any difficulty in seeing the moon on a full moon night when it is bright and there is no cloud in the sky?" They replied, "No." The Prophet (ﷺ) said, "(Similarly) you will have no difficulty in seeing Allah on the Day of Resurrection as you have no difficulty in seeing either of them. On the Day of Resurrection, a call-maker will announce, "Let every nation follow that which they used to worship." Then none of those who used to worship anything other than Allah like idols and other deities but will fall in Hell (Fire), till there will remain none but those who used to worship Allah, both those who were obedient (i.e. good) and those who were disobedient (i.e. bad) and the remaining party of the people of the Scripture. Then the Jews will be called upon and it will be said to them, 'Who do you use to worship?' They will say, 'We used to worship Ezra, the son of Allah.' It will be said to them, 'You are liars, for Allah has never taken anyone as a wife or a son. What do you want now?' They will say, 'O our Lord! We are thirsty, so give us something to drink.' They will be directed and addressed thus, 'Will you drink,' whereupon they will be gathered unto Hell (Fire) which will look like a mirage whose different sides will be destroying each other. Then they will fall into the Fire. Afterwards the Christians will be called upon and it will be said to them, 'Who do you use to worship?' They will say, 'We used to worship Jesus, the son of Allah.' It will be said to them, 'You are liars, for Allah has never taken anyone as a wife or a son,' Then it will be said to them, 'What do you want?' They will say what the former people have said. Then, when there remain (in the gathering) none but those who used to worship Allah (Alone, the real Lord of the Worlds) whether they were obedient or disobedient. Then (Allah) the Lord of the worlds will come to them in a shape nearest to the picture they had in their minds about Him. It will be said, 'What are you waiting for?' Every nation have followed what they used to worship.' They will reply, 'We left the people in the world when we were in great need of them and we did not take them as friends. Now we are waiting for our Lord Whom we used to worship.' Allah will say, 'I am your Lord.' They will say twice or thrice, 'We do not worship any besides Allah.' "
+
+

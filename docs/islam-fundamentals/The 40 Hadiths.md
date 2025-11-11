@@ -8,23 +8,31 @@ This is a very well documented event that happened that illustrates how the ange
 
 >While we were one day sitting with the Messenger of Allah (ﷺ) there appeared before us a man dressed in extremely white clothes and with very black hair. No traces of journeying were visible on him, and none of us knew him. He sat down close by the Prophet (ﷺ) rested his knees against the knees of the Prophet (ﷺ) and placed his palms over his thighs, and said: "O Muhammad! Inform me about Islam." The Messenger of Allah (ﷺ) replied: "Islam is that you should testify that there is no deity worthy of worship except Allah and that Muhammad is His Messenger (ﷺ), that you should perform salah (ritual prayer), pay the zakah, fast during Ramadan, and perform Hajj (pilgrimage) to the House (the Kabah at Makkah), if you can find a way to it (or find the means for making the journey to it)." He said: "You have spoken the truth." We were astonished at his thus questioning him (ﷺ) and then telling him that he was right, but he went on to say, "Inform me about Iman (faith)." He (the Prophet) answered, "It is that you believe in Allah and His angels and His Books and His Messengers and in the Last Day, and in fate (qadar), both in its good and in its evil aspects." He said, "You have spoken the truth." Then he (the man) said, "Inform me about Ihsan." He (the Prophet) answered, "It is that you should serve Allah as though you could see Him, for though you cannot see Him yet He sees you." He said, "Inform me about the Hour." He (the Prophet) said, "About that the one questioned knows no more than the questioner." So he said, "Well, inform me about its signs." He said, "They are that the slave-girl will give birth to her mistress and that you will see the barefooted ones, the naked, the destitute, the herdsmen of the sheep (competing with each other) in raising lofty buildings." Thereupon the man went off. I waited a while, and then he (the Prophet) said, "O Umar, do you know who that questioner was?" I replied, "Allah and His Messenger know better." He said, "That was Jibril. He came to teach you your religion." 
 
-### 3) Innovation is not allowed
+## 3) Innovation is not allowed
 
 God will not accept your innovations.
 
 >The Messenger of Allah (ﷺ) said, “He who innovates something in this matter of ours (i.e., Islam) that is not of it will have it rejected (by Allah).” 
 
-### 4) Avoiding doubtful issues
+## 4) Avoiding doubtful issues
 
 There are some vague things in Islam that if you avoid, it will be better for you as toeing the line with doubtful matters eventually leads you to blur the lines altogether and fall into sin. 
 
 The prophet also talks about how if there is an affliction of the heart, the entire body and soul will suffer. Thus it is paramount to make sure your righteousness and piety are intact, otherwise you will suffer as a result.
 
->I heard the Messenger of Allah (ﷺ) say, “That which is lawful is clear and that which is unlawful is clear, and between the two of them are doubtful matters about which many people do not know. Thus he who avoids doubtful matters clears himself in regard to his religion and his honor, but he who falls into doubtful matters `[eventually]` falls into that which is unlawful, like the shepherd who pastures around a sanctuary, all but grazing therein. Truly every king has a sanctuary, and truly Allah’s sanctuary is His prohibitions. Truly in the body there is a morsel of flesh, which, if it be whole, all the body is whole, and which, if it is diseased, all of `[the body]` is diseased. Truly, it is the heart.”
+>I heard the Messenger of Allah (ﷺ) say, *“That which is lawful is clear and that which is unlawful is clear, and between the two of them are doubtful matters about which many people do not know. Thus he who avoids doubtful matters clears himself in regard to his religion and his honor, but he who falls into doubtful matters eventually falls into that which is unlawful, like the shepherd who pastures around a sanctuary, all but grazing therein. Truly every king has a sanctuary, and truly Allah’s sanctuary is His prohibitions. Truly in the body there is a morsel of flesh, which, if it be whole, all the body is whole, and which, if it is diseased, all of the body is diseased. Truly, it is the heart.”*
 
 If you doubt something, then leave it, for sin is what wavers in the heart.
 
 >I memorised from the Messenger of Allah (peace and blessings of Allah be upon him): “Leave that which makes you doubt for that which does not make you doubt.”
+
+This hadith makes sense because it has the wisdom of knowing that people who partake in doubtful matters will often bend the lines and veer into the harmful, unlawful things since they corrupt their soul through the doubtful things.
+
+Here is a useful analogy that showcases how partaking in doubtful acts eventually pushes you to do the unlawful things:
+
+> If a shepherd allows his sheep to graze along the boundary of someone else's property, that sheep will eventually end up grazing inside the other person's pasture.
+
+
 
 ## 5) Do not excessively question religious matters
 
@@ -52,7 +60,7 @@ Your supplications will not be answered if you fall into haram, as God does not 
 
 ## 9) The importance of not being angry
 
->A man said to the Prophet (peace and blessings of Allah be upon him), “Counsel me,” so he (peace and blessings of Allah be upon him) said, “Do not become angry.” The man repeated [his request for counsel] several times, and [each time] he (peace and blessings of Allah be upon him) said, “Do not become angry.”
+>A man said to the Prophet (peace and blessings of Allah be upon him), “Counsel me,” so he (peace and blessings of Allah be upon him) said, “Do not become angry.” The man repeated his request for counsel several times, and each time he (peace and blessings of Allah be upon him) said, “Do not become angry.”
 
 ## 10) Sparing suffering to animal
 
