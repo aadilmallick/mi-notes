@@ -51,7 +51,7 @@ Here is what you should do after waking up:
 **dua after minor death**
 
 
-![[image.jpg]]
+![](https://i.imgur.com/N8UygMJ.jpeg)
 
 
 ### Going to sleep
@@ -62,9 +62,9 @@ Here is what you should do after waking up:
 4. Recite ayat-al-kursi
 5. Recite the four kuls (naas, falaq, iklhas, kafirun)
 
-### uSING THE BATHROOM
+### Using the bathroom
 
-When using the bathroom, do not remember Allah. You should never take any books with Allah's name written inside into the bathroom.
+When using the bathroom, you should never take any books with Allah's name written inside into the bathroom.
 
 But here is the sunnah:
 
