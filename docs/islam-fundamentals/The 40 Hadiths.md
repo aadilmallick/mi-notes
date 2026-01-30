@@ -199,4 +199,212 @@ True belief is to put Islam's commandments above your desires.
 
 ## 27) Allah's boundless mercy
 
->I heard the Messenger of Allah (peace and blessings of Allah be upon him) say, “Allah the Almighty has said: ‘O Son of Adam, as long as you invoke Me and ask of Me, I shall forgive you for what you have done, and I shall not mind. O Son of Adam, were your sins to reach the clouds of the sky and you then asked forgiveness from Me, I would forgive you. O Son of Adam, were you to come to Me with sins nearly as great as the Earth, and were you then to face Me, ascribing no partner to Me, I would bring you forgiveness nearly as great as it [too].’ ”
+>I heard the Messenger of Allah (peace and blessings of Allah be upon him) say, “Allah the Almighty has said: ‘O Son of Adam, as long as you invoke Me and ask of Me, I shall forgive you for what you have done, and I shall not mind. O Son of Adam, were your sins to reach the clouds of the sky and you then asked forgiveness from Me, I would forgive you. O Son of Adam, were you to come to Me with sins nearly as great as the Earth, and were you then to face Me, ascribing no partner to Me, I would bring you forgiveness nearly as great as it (too).’ ”
+
+## 40 hadith Qudsi
+
+**1) mercy prevails over wrath**
+
+>When Allah decreed the Creation He pledged Himself by writing in His book which is laid down with Him: My mercy prevails over my wrath. It was related by Muslim (also by al-Bukhari, an-Nasa'i and Ibn Majah).
+
+**2) Mankind has denied God in two ways**
+
+Mankind has denied and insulted God in these ways:
+
+1. Man doesn't believe in the resurrection
+2. Man takes Jesus Christ as the son of God and thinks that God was born
+
+>On the authority of Abu Hurayrah (may Allah be pleased with him), who said that the Messenger of Allah (ﷺ) said: Allah Almighty has said: The son of Adam denied Me and he had no right to do so. And he reviled Me and he had no right to do so. As for his denying Me, it is his saying: He will not remake me as He made me at first (1) - and the initial creation of him is no easier for Me than remaking him. As for his reviling Me, it is his saying: Allah has taken to Himself a son, while I am the One, the Everlasting Refuge. I begot not nor was I begotten, and there is none comparable to Me.(1) i.e., bring me back to life after death. It was related by al-Bukhari (also by an-Nasa'i).
+
+**3) Allah is self-sufficient**
+
+>Allah (glorified and exalted be He) said: I am so self-sufficient that I am in no need of having an associate. Thus he who does an action for someone else's sake as well as Mine will have that action renounced by Me to him whom he associated with Me. It was related by Muslim (also by Ibn Majah).
+
+**4) The three people who seem righteous but will enter hellfire**
+
+The main sin that will make people enter hell is their pride and their desire to perform in front of others and seek their approval, which is a form of shirk.
+
+1. The martyr who says he fought for Allah but only did it to be seen as brave in front of others
+2. The scholar who only studied religious knowledge so he would be admired by people
+3. The rich man who was generous and showed off just so people could admire how generous he was.
+
+>I heard the Messenger of Allah (ﷺ) say: The first of people against whom judgment will be pronounced on the Day of Resurrection will be a man who died a martyr. He will be brought and Allah will make known to him His favours and he will recognize them.  The Almighty will say: And what did you do about them? He will say: I fought for you until I died a martyr. He will say: You have lied - you did but fight that it might be said of you: He is courageous. And so it was said. Then he will be ordered to be dragged along on his face until he is cast into Hell-fire. Another will be a man who has studied religious knowledge and has taught it and who used to recite the Quran. He will be brought and Allah will make known to him His favours and he will recognize them. The Almighty will say: And what did you do about them? He will say: I studied religious knowledge and I taught it and I recited the Quran for Your sake. He will say: You have lied - you did but study religious knowledge that it might be said of you: He is learned. And you recited the Quran that it might be said of you: He is a reciter. And so it was said. Then he will be ordered to be dragged along on his face until he is cast into Hell-fire. Another will be a man whom Allah had made rich and to whom He had given all kinds of wealth. He will be brought and Allah will make known to him His favours and he will recognize them. The Almighty will say: And what did you do about them? He will say: I left no path untrodden in which You like money to be spent without spending in it for Your sake. He will say: You have lied - you did but do so that it might be said of you: He is open-handed. And so it was said. Then he will be ordered to be dragged along on his face until he is cast into Hell-fire. It was related by Muslim (also by at-Tirmidhi and an-Nasa'i).
+
+**5) The servant who remembers Allah in seclusion**
+
+>I heard the messenger of Allah (ﷺ) say: Your Lord delights at a shepherd who, on the peak of a mountain crag, gives the call to prayer and prays. Then Allah (glorified and exalted be He) say: Look at this servant of Mine, he gives the call to prayer and performs the prayers; he is in awe of Me. I have forgiven My servant (his sins) and have admitted him to Paradise. It was related by an-Nasa'i with a good chain of authorities.
+
+**6) The importance of surah fatihah**
+
+>On the authority of Abu Hurayrah (may Allah be pleased with him) from the Prophet (ﷺ), who said: A prayer performed by someone who has not recited the Essence of the Quran (1) during it is deficient (and he repeated the word three times), incomplete. Someone said to Abu Hurayrah: (Even though) we are behind the imam? (2) He said: Recite it to yourself, for I have heard the Prophet (may the blessings and peace of Allah be up on him) say: Allah (mighty and sublime be He), had said: I have divided prayer between Myself and My servant into two halves, and My servant shall have what he has asked for. When the servant says: Al-hamdu lillahi rabbi l-alamin (3), Allah (mighty and sublime be He) says: My servant has praised Me. And when he says: Ar-rahmani r-rahim (4), Allah (mighty and sublime be He) says: My servant has extolled Me, and when he says: Maliki yawmi d-din (5), Allah says: My servant has glorified Me - and on one occasion He said: My servant has submitted to My power. And when he says: Iyyaka na budu wa iyyaka nasta in (6), He says: This is between Me and My servant, and My servant shall have what he has asked for. And when he says: Ihdina s-sirata l- mustaqim, siratal ladhina an amta alayhim ghayril-maghdubi alayhim wa la d-dallin (7), He says: This is for My servant, and My servant shall have what he has asked for. (1) Surat al-Fatihah, the first surah (chapter) of the Qur'an. (2) i.e. standing behind the imam (leader) listening to him reciting al-Fatihah. (3) "Praise be to Allah, Lord of the Worlds." (4) "The Merciful, the Compassionate". (5) "Master of the Day of Judgement". (6) "It is You we worship and it is You we ask for help". (7) "Guide us to the straight path, the path of those upon whom You have bestowed favors, not of those against whom You are angry, nor of those who are astray". It was related by Muslim (also by Malik, at-Tirmidhi, Abu-Dawud, an-Nasa'i and Ibn Majah).
+
+**7) supplementary prayers will be useful on the day of judgement**
+
+>Allah (mighty and sublime be He) says: The first of his actions for which a servant of Allah will be held accountable on the Day of Resurrection will be his prayers. If they are in order, then he will have prospered and succeeded: and if they are wanting, then he will have failed and lost. If there is something defective in his obligatory prayers, the Lord (glorified and exalted be He) will say: See if My servant has any supererogatory prayers with which may be completed that which was defective in his obligatory prayers. Then the rest of his actions will be judged in like fashion. It was related by at-Tirmidhi (also by Abu Dawud, an-Nasa'i, Ibn Majah and Ahmad).
+
+**8) The joy of fasting**
+
+>Allah (mighty and sublime be He) says: Fasting is Mine and it is I who give reward for it. (A man) gives up his sexual passion, his food and his drink for my sake. Fasting is like a shield, and he who fasts has two joys: a joy when he breaks his fast and a joy when he meets his Lord. The change in the breath of the mouth of him who fasts is better in Allah's estimation than the smell of musk. It was related by al-Bukhari (also by Muslim, Malik, at-Tirmidhi, an-Nasa'i and Ibn Majah).
+
+**9) Allah pays back charity**
+
+>Allah (mighty and sublime be He) said: Spend (on charity), O son of Adam, and I shall spend on you. It was related by al-Bukhari (also by Muslim).
+
+**10) A man who forgave debts**
+
+>A man from among those who were before you was called to account. Nothing in the way of good was found for him except that he used to have dealings with people and, being well-to-do, he would order his servants to let off the man in straitened circumstances (from repaying his debt). He (the Prophet p.b.u.h) said that Allah said: We are worthier than you of that (of being so generous). Let him off. It was related by Muslim (also by al-Bukhari and an-Nasa'i).
+
+**11) The virtue of believing in the unseen**
+
+>Allah (glorified and exalted be He) has supernumerary angels who rove about seeking out gatherings in which Allah's name is being invoked: they sit with them and fold their wings round each other, filling that which is between them and between the lowest heaven. When the people in the gathering depart, the angels ascend and rise up to heaven. He (the Prophet (ﷺ)) said: Then Allah (mighty and sublime be He) asks them - though He is most knowing about them: From where have you come? And they say: We have come from some servants of Yours on Earth: they were glorifying You (Subhana llah), exalting you (Allahu akbar), witnessing that there is no god but You (La ilaha illa llah), praising You (Al-Hamdu lillah), and asking favours of You. He says: And what do they ask of Me? They say: They ask of You Your Paradise. He says: And have they seen My Paradise? They say: No, O Lord. He says: And how would it be were they to have seen My Paradise! They say: And they ask protection of You. He says: From what do they ask protection of Me? They say: From Your Hell-fire, O Lord. He says: And have they seen My Hell-fire? They say: NO. He says: And how would it be were they to have seen My Hell-fire: They say: And they ask for Your forgiveness. He (the Prophet (ﷺ)) said: Then He says: I have forgiven them and I have bestowed upon them what they have asked for, and I have granted them sanctuary from that from which they asked protection. He (the Prophet p.b.u.h) said: They say: O Lord, among them is So-and-so, a much sinning servant, who was merely passing by and sat down with them. He (the Prophet p.b.u.h) said: And He says: And to him too I have given forgiveness: he who sits with such people shall not suffer. It was related by Muslim (also by al-Bukhari, at-Tirmidhi, and an-Nasa'i).
+
+**12) Allah is how you think of him**
+
+We can grow closer to Allah by thinking of him as good.
+
+>Allah the Almighty said: I am as My servant thinks I am (1). I am with him when he makes mention of Me. If he makes mention of Me to himself, I make mention of him to Myself; and if he makes mention of Me in an assembly, I make mention of him in an assembly better than it. And if he draws near to Me an arm's length, I draw near to him a cubit, and if he draws near to Me a cubit, I draw near to him a fathom. And if he comes to Me walking, I go to him at speed. (1) Another possible rendering of the Arabic is: "I am as My servant expects Me to be". The meaning is that forgiveness and acceptance of repentance by the Almighty is subject to His servant truly believing that He is forgiving and merciful. However, not to accompany such belief with right action would be to mock the Almighty. It was related by al-Buhkari (also by Muslim, at-Tirmidhi and Ibn-Majah).
+
+**13) You are rewarded based on your intentions**
+
+>Allah has written down the good deeds and the bad ones. Then He explained it (by saying that) he who has intended a good deed and has not done it, Allah writes it down with Himself as a full good deed, but if he has intended it and has done it, Allah writes it down with Himself as from ten good deeds to seven hundred times, or many times over. But if he has intended a bad deed and has not done it, Allah writes it down with Himself as a full good deed, but if he has intended it and has done it, Allah writes it down as one bad deed. It was related by al-Bukhari and Muslim.
+
+**14) story - the greatness of Allah**
+
+>On the authority of Abu Dharr al-Ghifari (may Allah be pleased with him) from the Prophet (ﷺ) is that among the sayings he relates from his Lord (may He be glorified) is that He said:
+>
+>O My servants, I have forbidden oppression for Myself and have made it forbidden amongst you, so do not oppress one another. O My servants, all of you are astray except for those I have guided, so seek guidance of Me and I shall guide you, O My servants, all of you are hungry except for those I have fed, so seek food of Me and I shall feed you. O My servants, all of you are naked except for those I have clothed, so seek clothing of Me and I shall clothe you. O My servants, you sin by night and by day, and I forgive all sins, so seek forgiveness of Me and I shall forgive you. O My servants, you will not attain harming Me so as to harm Me, and will not attain benefitting Me so as to benefit Me. O My servants, were the first of you and the last of you, the human of you and the jinn of you to be as pious as the most pious heart of any one man of you, that would not increase My kingdom in anything. O My servants, were the first of you and the last of you, the human of you and the jinn of you to be as wicked as the most wicked heart of any one man of you, that would not decrease My kingdom in anything. O My servants, were the first of you and the last of you, the human of you and the jinn of you to rise up in one place and make a request of Me, and were I to give everyone what he requested, that would not decrease what I have, any more that a needle decreases the sea if put into it. O My servants, it is but your deeds that I reckon up for you and then recompense you for, so let him who finds good, praise Allah, and let him who finds other than that, blame no one but himself. It was related by Muslim (also by at-Tirmidhi and Ibn Majah).
+
+**15) God is found by helping others**
+
+>Allah (mighty and sublime be He) will say on the Day of Resurrection: O son of Adam, I fell ill and you visited Me not. He will say: O Lord, and how should I visit You when You are the Lord of the worlds? He will say: Did you not know that My servant So-and-so had fallen ill and you visited him not? Did you not know that had you visited him you would have found Me with him? O son of Adam, I asked you for food and you fed Me not. He will say: O Lord, and how should I feed You when You are the Lord of the worlds? He will say: Did you not know that My servant So-and-so asked you for food and you fed him not? Did you not know that had you fed him you would surely have found that (the reward for doing so) with Me? O son of Adam, I asked you to give Me to drink and you gave Me not to drink. He will say: O Lord, how should I give You to drink when You are the Lord of the worlds? He will say: My servant So-and-so asked you to give him to drink and you gave him not to drink. Had you given him to drink you would have surely found that with Me.
+
+**16) Do not have pride**
+
+>  
+Allah (mighty and sublime be He) said: Pride is my cloak and greatness My robe, and he who competes with Me in respect of either of them I shall cast into Hell-fire. It was related by Abu Dawud (also by Ibn Majah and Ahmad) with sound chains of authority. This Hadith also appears in Muslim in another version.
+
+**17) Do not have a grudge against your muslim brothers**
+
+If you have a grudge against any of your muslim brothers, then your good deeds are nullified
+
+>The gates of Paradise will be opened on Mondays and on Thursdays, and every servant (of Allah) who associates nothing with Allah will be forgiven, except for the man who has a grudge against his brother. (About them) it will be said: Delay these two until they are reconciled; delay these two until they are reconciled. It was related by Muslim (also by Malik and Abu Dawud).
+
+**18) The three people Allah hates**
+
+1. Someone who breaks his oaths
+2. Someone who captures and sells a slave
+3. Someone who exploits somebody else by withholding their salary
+
+>There are three (1) whose adversary I shall be on the Day of Resurrection: a man who has given his word by Me and has broken it; a man who has sold a free man (2) and has consumed the price; and a man who has hired a workman, has exacted his due in full from him and has not given him his wage. (1) i.e. types of men. (2) i.e. a man who has made a slave of another and has sold him. It was related by al-Bukhari (also by Ibn Majah and Ahmad ibn Hanbal).
+
+
+**19) Fear Allah more than other people**
+
+>Let not any one of you belittle himself. They said: O Messenger of Allah, how can any one of us belittle himself? He said: He finds a matter concerning Allah about which he should say something, and he does not say (it), so Allah (mighty and sublime be He) says to him on the Day of Resurrection: What prevented you from saying something about such-and-such and such-and-such? He say: (It was) out of fear of people. Then He says: Rather it is I whom you should more properly fear. It was related by Ibn Majah with a sound chain of authorities.
+
+**20) Those who love others for Allah's sake will be in his shade**
+
+>Allah will say on the Day of Resurrection: Where are those who love one another through My glory? Today I shall give them shade in My shade, it being a day when there is no shade but My shade. It was related by al-Bukhari (also by Malik).
+
+**21) The Angels tell God to love you or hate you**
+
+>If Allah has loved a servant (of His) He calls Gabriel (on whom be peace) and says: I love So-and-so, therefore love him. He (the Prophet pbuh) said: So Gabriel loves him. Then he (Gabriel) calls out in heaven, saying: Allah loves So-and-so, therefore love him. And the inhabitants of heaven love him. He (the Prophet pbuh) said: Then acceptance is established for him on earth. And if Allah has abhorred a servant of His, He calls Gabriel and says: I abhor So-and-so, therefore abhor him. So Gabriel abhors him. Then Gabriel calls out to the inhabitants of heaven: Allah abhors So-and-so, therefore abhor him. He (the Prophet pbuh) said: So they abhor him, and abhorrence is established for him on earth. It was related by Muslim (also by al-Bukhari, Malik, and at-Tirmidhi).
+
+**22) What closeness to Allah feels like**
+
+>Allah (mighty and sublime be He) said: Whosoever shows enmity to someone devoted to Me, I shall be at war with him. My servant draws not near to Me with anything more loved by Me than the religious duties I have enjoined upon him, and My servant continues to draw near to Me with supererogatory works so that I shall love him. When I love him I am his hearing with which he hears, his seeing with which he sees, his hand with which he strikes and his foot with which he walks. Were he to ask (something) of Me, I would surely give it to him, and were he to ask Me for refuge, I would surely grant him it. I do not hesitate about anything as much as I hesitate about (seizing) the soul of My faithful servant: he hates death and I hate hurting him. It was related by al-Bukhari.
+
+**23) The archetype of someone dear to Allah**
+
+The closest people to God are those who are poor but devote much of their time to prayer, and are not well known by the people.
+
+>Allah (mighty and sublime be He) said: Truly of those devoted to Me the one I most favor is a believer who is of meager means and much given to prayer, who has been particular in the worship of his Lord and has obeyed Him inwardly1, who was obscure among people and not pointed out, and whose sustenance was just sufficient to provide for him yet he bore this patiently. Then the Prophet (ﷺ) shook his hand and said: Death will have come early to him, his mourners will have been few, his estate scant.  he has not been ostentatious in his obedience. It was related by at-Tirmidhi (also by Ahmad ibn Hanbal and Ibn Majah). Its chain of authorities is sound.
+
+**24) The martyrs would want to be killed again**
+
+>We asked Abdullah (i.e. Ibn Masud) about this verse: And do not regard those who have been killed in the cause of Allah as dead, rather are they alive with their Lord, being provided for (Quran Chapter 3 Verse 169). He said: We asked about that and the Prophet (pbuh) said: Their souls are in the insides of green birds having lanterns suspended from the Throne, roaming freely in Paradise where they please, then taking shelter in those lanterns. So their Lord cast a glance at them (1) and said: Do you wish for anything? They said: What shall we wish for when we roam freely in Paradise where we please? And thus did He do to them three times. When they say that they would not be spared from being asked (again), they said: O Lord, we would like for You to put back our souls into our bodies so that we might fight for Your sake once again. And when He saw that they were not in need of anything they were let be. (1) i.e. at those who had been killed in the cause of Allah. It was related by Muslim (also by at-Tirmidhi, an-Nasa'i and Ibn Majah).
+
+**25) Suicide is forbidden**
+
+>There was amongst those before you a man who had a wound. He was in such anguish that he took a knife and made with it a cut in his hand, and the blood did not cease to flow till he died. Allah the Almighty said: My servant has himself forestalled Me; I have forbidden him Paradise. It was related by al-Bukhari.
+
+**26) Patiently bearing loss lands you in paradise**
+
+>Allah (mighty and sublime be He) says: My faithful servant's reward from Me, if I have taken to Me his best friend from amongst the inhabitants of the world and he has then borne it patiently for My sake, shall be nothing less than Paradise. It was related by al-Bukhari.
+
+**27) If you love Allah, he will love you back**
+
+>Allah (mighty and sublime be He) said: If My servant likes to meet Me, I like to meet him; and if he dislikes to meet Me, I dislike to meet him. Prophetic explanation of this Sacred Hadith: He who likes to meet Allah, Allah likes to meet him; and he who dislikes to meet Allah, Allah dislikes to meet him. Aishah (may Allah be pleased with her) said: O Prophet of Allah, is it because of the dislike of death, for all of us dislike death? The Prophet (pbuh) said: It is not so, but rather it is that when the believer is given news of Allah's mercy, His approval and His Paradise, he likes to meet Allah and Allah likes to meet him; but when the unbeliever is given news of Allah's punishment and His displeasure, he dislikes to meet Allah and Allah dislikes to meet him. It was related by al-Bukhari and Malik. The Prophetic version is related by Muslim.
+
+**28) Allah forgives those who fear him**
+
+>A man sinned greatly against himself, and when death came to him he charged his sons, saying: When I have died, burn me, then crush me and scatter (my ashes) into the sea, for, by Allah, if my Lord takes possession of me, He will punish me in a manner in which He has punished no one else. So they did that to him. Then He said to the earth: Produce what you have taken-and there he was! And He said to him: What induced you to do what you did? He said: Being afraid of You, O my Lord (or he said: Being frightened of You) and because of that He forgave him. It was related by Muslim (also by al-Bukhari, an-Nasa'i and Ibn Majah).
+
+**29) Allah constantly forgives**
+
+>  
+A servant of Allah's committed a sin and said: O Allah, forgive me my sin. And He (glorified and exalted be He) said: My servant has committed a sin and has known that he has a Lord who forgives sins and punishes for them. Then he sinned again and said: O Lord, forgive me my sin. And He (glorified and exalted be He) said: My servant has committed a sin and has known that he has a Lord who forgives sins and punishes for them. Then he sinned again and said: O Lord, forgive me my sin. And He (glorified and exalted be He) said: My servant has committed a sin and has known that he has a Lord who forgives sins and punishes for sins. Do what you wish, for I have forgiven you. It was related by Muslim (also by al-Bukhari).
+
+>I heard the Messenger of Allah (ﷺ) say: Allah the Almighty said: O son of Adam, so long as you call upon Me and ask of Me, I shall forgive you for what you have done, and I shall not mind. O son of Adam, were your sins to reach the clouds of the sky and were you then to ask forgiveness of Me, I would forgive you. O son of Adam, were you to come to Me with sins nearly as great as the earth and were you then to face Me, ascribing no partner to Me, I would bring you forgiveness nearly as great as it. It was related by at-Tirmidhi (also by Ahmad ibn Hanbal). Its chain of authorities is sound.
+
+**30) During the night prayer, Allah is ready to answer**
+
+>  
+Our Lord (glorified and exalted be He) descends each night to the earth's sky when there remains the final third of the night, and He says: Who is saying a prayer to Me that I may answer it? Who is asking something of Me that I may give it him? Who is asking forgiveness of Me that I may forgive him? It was related by al-Bukhari (also by Muslim, Malik, at-Tirmidhi and Abu Dawud). In a version by Muslim the Hadith ends with the words: And thus He continues till the light of dawn shines.
+
+**31) Jannah is unlike anything else**
+
+>Allah said: I have prepared for My righteous servants what no eye has seen and no ear has heard, not has it occurred to human heart.
+
+## 40 quick hadiths
+
+>The person guiding (someone) to do a good deed, is like the one performing the good deed.
+
+>The world is the believer’s prison and the disbeliever’s paradise.
+
+>Modesty is entirely good.
+
+>It is unlawful for a believer to sever relations with his brother for more than three days.
+
+
+Always maintain moderation in any vices like tv, reading manga, music, etc.
+
+>A little that suffices is better than an abundance that distracts.
+
+>Someone who takes back his gift is like someone who eats his vomit.
+
+True wealth is having a satisfied soul
+
+>Richness lies in the richness of the soul.
+
+>A man will be with whom he loves
+
+>A man who knows his worth will not be ruined.
+
+It is better to be the one who gives rather than being a beggar, the one who is given to.
+
+>The upper hand is superior to the lower hand.
+
+Always be thankful to both Allah and especially to other people
+
+>He does not thank Allah who does not thank people.
+
+>Your love of something can blind and deafen (you).
+
+It's easy to love those who love you, but it's even better to love those who hate you.
+
+>Hearts are predisposed to love someone who does them good and detest someone who does them harm.
+
+>One who repents from sin is like someone without sin.
+
+>Whoever is killed attempting to save his property is a martyr.
+
+>Actions are through intentions.
+
+>The leader of a people is their servant.
+
+>The best of affairs is that which is balanced.
+
+It is very blessed to rise up early and fast on mondays and thursdays
+
+>O Allah, bless my nation in its early rising on Thursdays!
